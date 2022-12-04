@@ -85,3 +85,6 @@
 2022年9月，《空洞骑士：丝之歌》发布新截图，2023年6月前推出。
 
 ![4.md](C:\Users\瘾染\OneDrive\图片\Hollow photo\4.md.jpg)
+
+
+最后来欣赏一段大佬的操作https://www.bilibili.com/video/BV1ta411v7Bc/?spm_id_from=333.337.search-card.all.click&vd_source=5479804c0408e015362243afd3a3f316
