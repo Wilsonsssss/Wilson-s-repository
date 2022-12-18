@@ -87,7 +87,7 @@
 
 ## *五、相关作品*
 
-《空洞骑士：丝之歌（Hollow Knight Silksong）》是2017年《[空洞骑士](https://baike.baidu.com/item/空洞骑士/16422241?fromModule=lemma_inlink)》的续作，拥有新剧情和关卡，还有新技能和敌人。登陆PC和[Nintendo Switch](https://baike.baidu.com/item/Nintendo Switch/20156470?fromModule=lemma_inlink)平台。
+《空洞骑士：丝之歌（Hollow Knight Silksong）》是2017年《[空洞骑士](https://baike.baidu.com/item/空洞骑士/16422241?fromModule=lemma_inlink)》的续作，拥有新剧情和关卡，还有新技能和敌人。登陆PC和Nintendo Switch平台。
 
 2021年2月1日据外媒Nintendo Everything报道，《空洞骑士》开发团队Team Cherry接受采访时谈到了《空洞骑士：丝绸之歌》完成之后计划，据开发者称，他们还有一款非《空洞骑士》类型的游戏在等待制作 。
 
